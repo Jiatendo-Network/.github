@@ -5,3 +5,6 @@
  using combinations of Rust and special DNS servers for all non hackers. Rust is a combinations of C and C++, but more stronger and advanced, which
  provides speed enhancement, more safety, and security for all nintendo players around the world. Rust is more stronger than GO, and is the most strongest
  and complex of them all. May Jias be with you all!
+
+ https://jiatendo.network/
+ 
