@@ -7,4 +7,7 @@
  and complex of them all. May Jias be with you all!
 
  https://jiatendo.network/
- 
+
+ https://x.com/JiatendoNetwork
+
+ https://www.reddit.com/r/JiatendoNetwork/
